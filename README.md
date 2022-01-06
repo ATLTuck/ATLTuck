@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ATLTuck
+- 👀 I’m interested in cryptocurrency, programming, marketing, 3D printing, and decentralized finance.
+- 🌱 I’m currently learning Azure, AWS, and Google Cloud
+- 💞️ I’m looking to collaborate on cryptocurrency projects
+- 📫 How to reach me: @ATLTuck on Twitter - DM's are open.
